@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @123MoMoney123
+- 👀 I’m interested in website programming, game development and learning as much coding languages as possible. 
+- 🌱 I’m currently learning Javascript
+- 📫 You can reach me by my gmail which i can share with you after we are able to get in contact. Thank you!
+- 
